@@ -1,4 +1,4 @@
-### Hi there 👋
+### 👋 Nice to meet you!
 
 ![](https://visitor-badge.glitch.me/badge?page_id=ultravires.ultravires)
 
